@@ -1,1 +1,12 @@
 # LAB-GUIDE2
+![Capture](https://github.com/user-attachments/assets/5a66fdf5-4b8d-4b77-9b4b-4b922ce581dc)
+![Capture1](https://github.com/user-attachments/assets/4546c683-4071-4e53-8bbe-46cae8408a0e)
+![Capture2](https://github.com/user-attachments/assets/e2e46ad7-c86f-435f-85be-1d44f502c872)
+![Capture3](https://github.com/user-attachments/assets/347bf258-4a1f-4610-aed1-5695a4abaf50)
+![Capture4](https://github.com/user-attachments/assets/7c0c4e5f-c056-4135-a527-517b9f282c9d)
+![Capture5](https://github.com/user-attachments/assets/93bdee24-1cb8-454b-88e6-1942c601e7b2)
+![Capture6](https://github.com/user-attachments/assets/42de1dcb-6f59-4833-a171-8c8539021e01)
+![Capture7](https://github.com/user-attachments/assets/d9effe3b-dd0e-4b64-aab4-f1da234fbabc)
+![Capture8](https://github.com/user-attachments/assets/c3188535-3ef0-48a5-808b-f8e2cbfbb074)
+![Capture9](https://github.com/user-attachments/assets/fbf32084-700e-4cf2-ac97-41d99204243f)
+![Capture10](https://github.com/user-attachments/assets/be0181bb-6392-4f49-a0a2-9c7ba0aa08f4)
